@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HariNicklenReal1
+- 👀 I’m interested in Python Java React JS andd making youtube videos 
+- 🌱 I’m currently learning Python Java and react JS 
+- 📫 How to reach me My Website https://harischanneloffreedom.co.uk/ Or channel https://www.youtube.com/channel/UC8ZiZJmgBRLY0SwozmL3wBA
